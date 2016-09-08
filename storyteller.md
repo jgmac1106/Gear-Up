@@ -7,6 +7,8 @@ The ideal candidate will be able to join the efforts to capture the triumphs of 
 
 You will be a storyteller across many modes. Yet you do not need to be a master of all. Just have the ability to determine what you do not know, the skills to learn collaborativley, and the flexibility to work remotely with the team. 
 
+A basic understanding of HTML/CSS, Adobe Creative Suite or video editing would be nice skillsets to bring. Being in tune with the general pulse of the web is required. 
+
 Please send or include links to any of the following channels where you represent yourself publicly and professionally. 
 * Your website(s)
 * GitHub Profile
