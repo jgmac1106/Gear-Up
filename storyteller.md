@@ -20,8 +20,8 @@ Please send or include links to any of the following channels where you represen
 
 Also send links and describe (>200 words or 1 min video) the coolest thing you have ever made and the hardest thing you have ever made. This could be the same project or two different projects.
 
-Email all applications to mcverryj1@southernct.edu. In the body of the email please include or link to all required information.
+Undergraduate student workers can work up to 19 hours a week and will begin at $12.00 an hour. Weekly hours will flucatutae based on student availability and the needs of projects.
 
-Undergraduate student workers can work up to 19 hours a week and will begin at $12.00 an hour. Weekly hours will flucatutae based on student availability and the needs of projects. 
+Email all applications to mcverryj1@southernct.edu. In the body of the email please include or link to all required information.
 
 ## Please note this is an early draft solely by @jgmac1106 and does not reflect the policy or represent an actual call for employment at Southern Connecticut State University.
