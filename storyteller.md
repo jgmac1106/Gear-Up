@@ -22,4 +22,4 @@ Also send links and describe (>200 words or 1 min video) the coolest thing you h
 
 Email all applications to mcverryj1@southernct.edu. In the body of the email please include or link to all required information.
 
-## Please note this is an early draft solely by @jgmac1106 and does not reflect the policy or represent an actual call for employment at Southern Conencticut State University.
+## Please note this is an early draft solely by @jgmac1106 and does not reflect the policy or represent an actual call for employment at Southern Connecticut State University.
