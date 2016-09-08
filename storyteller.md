@@ -3,7 +3,9 @@ The Gear up Office at Southern Connecticut State University seeks a versatile an
 Gear Up, Gaining Early Awareness and Readiness for Undergraduate Programs, is a federal program designed to make post secondary education a dream for all. The New Haven affiliate serves over 350 students in partnership with New Haven Public Schools.
 
 The ideal candidate will be able to join the efforts to capture the triumphs of our Gear Up students. You will contribute to projects such as developing online learning resources, video editing for social media campaigns, and designing promotional materials.
-You will be a storyteller across many modes. Yet you do not need to be a master of all. Just have the ability to determine what you do not know, the skills to learn collaboratively, and the flexibility to work remotely with the team.
+You will be a storyteller across many modes. 
+
+Yet you do not need to be a master of all. Just have the ability to determine what you do not know, the skills to learn collaboratively, and the flexibility to work remotely with the team.
 
 A basic understanding of HTML/CSS, Adobe Creative Suite or video editing would be nice skill sets to bring. Being in tune with the general pulse of the web is required.
 
