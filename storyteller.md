@@ -16,7 +16,7 @@ Please send or include links to any of the following channels where you represen
 * LinkedIn Profile
 * Tumblr Profile
 * Medium Profile
-* Anywehre else where you document work
+* Anywhere else where you document work
 
 Also send links and describe (200 words or less or 1 min video) the coolest thing you have ever made and the hardest thing you have ever made. This could be the same project or two different projects.
 
