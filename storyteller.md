@@ -21,3 +21,5 @@ Please send or include links to any of the following channels where you represen
 Also send links and describe (200 words or less or 1 min video) the coolest thing you have ever made and the hardest thing you have ever made. This could be the same project or two different projects.
 
 Email all applications to mcverryj1@southernct.edu. In the body of the email please include or link to all required information.
+
+## Please note this is an early draft solely by @jgmac1106 and does not reflect the policy or represent an actual call for employment at Southern Conencticut State University.
