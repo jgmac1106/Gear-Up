@@ -8,10 +8,10 @@ The ideal candidate will be able to join the efforts to capture the triumphs of 
 You will be a storyteller across many modes. Yet you do not need to be a master of all. Just have the ability to determine what you do not know, the skills to learn collaborativley, and the flexibility to work remotely with the team. 
 
 Please send or include links to any of the following channels where you represent yourself publicly and professionally. 
-*Your website(s)
-*GitHub Profile
-*Twitter Profile
-*LinkedIn Profile
+* Your website(s)
+* GitHub Profile
+* Twitter Profile
+* LinkedIn Profile
 
 Also send links and describe (200 words or less or 1 min video) the coolest thing you have ever made and the hardest thing you have ever made. This could be the same project or two different projects.
 
